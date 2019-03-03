@@ -1,0 +1,1 @@
+BU benim ilk bilgisayarım.
